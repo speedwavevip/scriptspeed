@@ -1,0 +1,2 @@
+# scriptspeed
+Love_z
